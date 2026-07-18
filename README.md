@@ -1,0 +1,1 @@
+# CAPTURA-de-cordenada-robloxiana
